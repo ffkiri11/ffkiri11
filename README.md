@@ -3,4 +3,4 @@
  
  Free Alexey Navalny. Stop
  dictatorship in Russian Federation. 
- 
+ Stop war in Ukraine, Stop Islamic State.
