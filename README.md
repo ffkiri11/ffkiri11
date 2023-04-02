@@ -8,6 +8,8 @@
  Russian Federation must be state of law.
  Kick out russian and pararussian militans from Ukraine, Stop Islamic State.
  
- [Join the resistance!](https://github.com/ffkiri11/pacific-tex/raw/main/pacific.pdf)
+ [Weaver](https://github.com/ffkiri11/pacific-tex/blob/main/pacific.pdf)
+ 
+ [Join the resistance!](https://github.com/ffkiri11/pacific-tex)
 
 Print this waiver and distribute it between your friends.
