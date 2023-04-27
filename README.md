@@ -6,7 +6,7 @@
  Free Alexey Navalny. Stop
  dictatorship in Russian Federation, Stop chemical (and other) terror and poisoning.
  Russian Federation must be state of law.
- Kick out russian and pararussian militans from Ukraine, Stop Islamic State.
+ Kick out russian and pararussian militans from Ukraine, Stop Assad.
  
  [Weaver](https://github.com/ffkiri11/pacific-tex/blob/main/pacific.pdf)
  
