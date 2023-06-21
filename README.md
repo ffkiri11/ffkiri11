@@ -1,3 +1,5 @@
-👋 Hi, I’m @ffkiri11
+👋 Hi, I’m @ffkiri11!
 
-I 'm looking for employement as a Python, Django or React.JS developer.
+Experienced Python/Django/ReactJS developer.
+
+Hire me! xerasovanon@gmail.com
